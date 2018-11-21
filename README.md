@@ -1,2 +1,0 @@
-# nicole-samu
-Cartography portfolio.
